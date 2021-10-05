@@ -16,5 +16,4 @@
 
 
 * Email- vivekpusti1999@gmail.com
-* Linkedln-Vivek Pusti
 
